@@ -1,0 +1,33 @@
+
+---
+title: "A Thread of Blood Connecting Love and Hate: The Violent Feminine in Lady Snowblood"
+author: "Gretchen Felker-Martin"
+date: "2019-20-03"
+categories:
+- Editorial
+---
+
+*Content warning for a graphic depiction of violence*
+
+We love to see women—beautiful women—do violence. Critics have spilled enough ink in breathless praise of “strong female characters” over the last four decades to drown an actual woman. Some of the appeal is obvious; watching hot girls wreak bloody vengeance on armies of hulking goons straddles the line between catharsis and softcore for many viewers. Audiences can pretend that every wrong can be righted, even if it takes painting the walls red with blood to do it, or that women are in control of their bodies and their lives. 
+
+In Toshiya Fujita’s 1973 exploitation flick *[Lady Snowblood](https://www.imdb.com/title/tt0158714/), *the thrill of slim, ethereally beautiful Yuki (Kaji Meiko) butchering her dead family’s enemies is leavened with stillness and sorrow most contemporary revenge flicks lack. The movie treats Yuki’s quest for revenge not just as spiritually corrosive, but as something at times pitiful and undignified, as in the crucial scene where she cuts down a broken old drunk (Nakaya Noboru), one of her mother’s attackers reduced to nothing by addiction. His death is strictly pro forma, a wasteful act of brutality with no reward but misery.
+
+Where its successors—*[Mad Max: Fury Road](https://www.imdb.com/title/tt1392190/), *with its clear-eyed certainty that as long as good people are doing violence, that violence will lead to good things, springs to mind—have indulged in the idea of killing as a road to female empowerment, *Lady Snowblood *positions it as a fundamentally nihilistic act. It’s a moving, nuanced treatment of both the revenge story and the idea of the violent woman, one which acknowledges that to live a life of violence is to split one’s self open again and again until nothing is left inside you.
+
+### **Weaponizing Femininity**
+![](https://lh3.googleusercontent.com/C-y2DnyWc7eEVRCryA1mCcw-eQcnWyYzGyPwsewgI9O9Ja3jvbFsvoxKF3sEuyGU85RDHmPwBJZ2oL_ZnwF-GYTl49dPXZZTBfxzWK44Bw_QsQw-YDjG8nbWmn9TIrhJPu9afD5m)The body of Yuki’s mother Sayo (Akaza Miyoko) after her death in childbirth
+*Lady Snowblood *takes women’s lives in late Edo and early Meiji-period Japan and snaps their domestic trials and obligations into jagged, broken splinters of raw fury. Yuki’s birth itself is an act of revenge on her mother’s part, the dying woman snarling out a vow that her child will live on as her next incarnation and will pursue her vendetta without fail. There is no man to avenge her rape and the murder of her son and husband, no hoped-for second son, no dutiful brother. Sayo’s vendetta, a woman’s vendetta, is carried out by a daughter. 
+
+Yuki’s life is shaped at every turn by the unique circumstances of her birth. From early childhood she is trained to kill by allies of her mother’s family. In one vivid scene Yuki is injured while sparring by her master, the priest Dōkai (Nishimura Kō), and pauses to suck at the wound. It’s a grisly, Freudian image, a child whose mother never fed her cutting her teeth on blood instead of milk, a young girl coming to adulthood in blood not through her menarche but by the sword. Her mandated quest for revenge hardens and renders hateful every inch of Yuki’s journey into adulthood.
+![](https://lh4.googleusercontent.com/fAk_2c8erSod6u8rGllvg92ADhESf7sxdtuAkYYvqBHjiPFod8kLiEDFxAJ7NeD3IpwlWg_RIa9A_pe-QuYpztwVFDBAFKm1ToAGzSaNGeg8rHn3kxsZvRBT4N5IBp6fRjy551cB)The young Yuki (Maemura Mayumi) sucks at a cut received during her training
+It’s this sharpening of traditionally soft and sentimental story elements which sets *Lady Snowblood *apart from other feminine revenge fantasies. It isn’t trying to have it both ways by giving us a gorgeous heroine whose problems are solved through dizzying feats of acrobatic violence; instead it shows carefully, with understated elegance, the ways in which Yuki’s upbringing in the shadow of her mother’s vow destroys and deforms her life. The act of reproduction is wielded in the film like a knife, the creation of new life transmuted into the summoning of an instrument of death.
+
+### **Killing the Future**
+![](https://lh5.googleusercontent.com/dsANDTDUsUjuOGx_QS00cujj2G5yh-2nRG5g75unNxCC_f9rZkDW87zEdw8LeiHgqawslND4FZD7WwJnJUEPHMAZEJuvOapC5JZ3PV0wqFOv8ZRs7WOGFJEq0n2jSxRfCNOOXVgW)Yuki and Kobue meet
+Throughout the film Yuki has several brushes with contentment and affection. Her first encounter with Kobue is colored by an almost romantic attraction, squashed at once when she murders Kobue’s derelict father. It’s Kobue who delivers the film’s final blow, stabbing an already badly injured Yuki just minutes after Yuki impales her love interest, the cavalier journalist Ashio (Kurosawa Toshio), to get to the last name on her mother’s hit list. At every step along the road to revenge she’s forced to butcher any possibility of her own happiness.
+
+The moment of Yuki’s decision to kill Ashio in order to satisfy the vendetta is as direct a confirmation as anything that the purpose of her life and her own happiness are fatally at odds. As Yuki, Kaji Meiko is reserved and quiet, her emotions flashing through mostly in moments of pain or extreme focus. The few occasions on which we see her soften are part of what give the film’s violence such a heady flavor of waste. At one point she pauses to watch children at play in a public square, the look on her face wistful and heartbroken at once. It isn’t discussed again, but in her tentative intimacy with Ashio you can see the very barest flicker of another future, an echo of children laughing instead of the ringing of steel.
+![](https://lh6.googleusercontent.com/qQH-Wg9XXA-VzzWyTxt4r8w5g5axFisLeVIC0thWC-ibzQzbs-cUH4m6Jpw_TMOE-iOOvmK750W1CH-yttSyGTLjHGIOqnyBFFsJEyey6U853Fx7kq49ziqJHXiR0aksgE0-FFSw)Yuki, stabbed by Kobue after completing her mission of vengeance, 
+staggers through the snow
+When, in the film’s final scene, Yuki wakes up after collapsing gravely wounded in the snow, the first thing she does is let out a scream of rage, furious that after everything she’s cut away and lost, she’s still alive. Her life was a duty she was taught to perform, not a thing she lived for herself. Now that it’s over, who is she? What is left to her? It’s the first and last moment in which Yuki displays raw emotion in the entire film, an infant’s cry at a miserable new birth into a world suddenly rendered disordered and meaningless. That *Lady Snowblood *grounds us in her pain after her “triumph” is part of what makes it such a meaningful entry in the canon of violent women.

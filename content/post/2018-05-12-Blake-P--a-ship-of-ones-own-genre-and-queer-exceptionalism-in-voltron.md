@@ -1,0 +1,46 @@
+
+---
+title: "A Ship Of One’s Own: Genre and Queer Exceptionalism in Voltron"
+author: "Blake P."
+date: "2018-05-12"
+categories:
+- Editorial
+---
+
+### Shiro contains multitudes
+
+Voltron: Legendary Defender debuted in 2016 from DreamWorks Animation with a tidal wave of support from fans old and new alike. This adaptation of the 1984 Voltron anime dub re-imagined the original team of mecha pilots as military school cadets swept into an intergalactic war—with awesome, giant robot lions included. 
+
+With seven seasons under its belt and the series finale right around the corner, Voltron has covered an impressive breadth of subject matter and plotlines with a diverse cast of characters. But Voltron’s origin doesn’t end at the campy cartoon—it was originally a mecha anime called Beast King Golion, which was localized as the American version remembered by all 80s kids. This raises an interesting question—how traditional of a mech anime is Voltron, and how are the traditional narrative beats of the genre echoed in this new incarnation?
+
+![](https://i2.wp.com/vrvblog.co/wp-content/uploads/2018/12/image1-1-1024x575.jpg?resize=1024%2C575&#038;ssl=1)
+
+# War Never Changes
+
+In his essay Gundam and the Future of Japanoid Art, scholar [Takayuki Tatsumi](http://www.isfdb.org/cgi-bin/ea.cgi?23250) argues that the origins of the mecha anime can be traced back to Robert A. Heinlein’s 1959 novel Starship Troopers with the inclusion of the armored “power suit” trope preceding the boom of series such as Mobile Suit Gundam. He writes: “…the anime imagination of future war, with its emphasis on mecha, meshed closely with the emergence of the [American] war on terror and even seemed to anticipate its dynamics.” War never changes, according to Tatsumi’s ambitious reading of international political affairs and science-fiction cartoons. 
+
+In the shadow of series like Gundam, which became the first giant robot cartoon not aimed exclusively at children, Voltron’s source-material Golion was essentially forced to mimic the same narrative formula to succeed. Debuting in 1981, two years after Gundam’s premiere, Golion paired its five teen protagonists with man-killing machines in order to save the universe stuck in an alien war. In other words, Gundam crawled so future mecha shows such as Golion and Macross could run—and eventually succeed in America as Voltron and [Robotech](https://www.syfy.com/syfywire/remembering-robotech-detailed-history-80s-anime-cross-over-changed-everything), thus sowing the seeds for Legendary Defender’s debut and vocal fandom.
+
+This past summer, it was announced that Shiro, the Black Paladin and leader of Voltron, [is a gay man](https://www.vulture.com/2018/08/voltron-legendary-defender-shiro-gay.html). And not only that—he was on his way to marriage until the war with the evil alien race, the Galra, threatened the entire galaxy. In season seven, it’s revealed that Shiro’s partner, Adam, was killed in the fight against the Galra on Earth while he was away piloting his giant robot lion. This reveal began a [conversation](https://www.polygon.com/tv/2018/8/16/17698024/voltron-adam-controversy-netflix-queerbaiting-dos-santos-letter) as to whether or not Shiro’s representation was a reflection of the [Bury Your Gays](https://tvtropes.org/pmwiki/pmwiki.php/Main/BuryYourGays) trope, or just another narrative beat for a show about war.
+
+![](https://i0.wp.com/vrvblog.co/wp-content/uploads/2018/12/image3-1-1024x572.jpg?resize=1024%2C572&#038;ssl=1)
+
+Mecha anime is seemingly evergreen. However, re-imaginings such as Voltron begin to show the age of traditional narratives in the genre, which typically omit queer characters altogether. In an [interview](https://ew.com/tv/2018/08/09/voltron-legendary-defender-shiro-gay/) with Entertainment Weekly, executive producers Lauren Montgomeryand Joaquim Dos Santoscommented that Shiro’s identity as a gay man wasn’t initially included in the show’s pitch. The reasoning behind this was that Shiro was—like his counterpart, Sven in the 1980’s Voltron—meant to die early on. This eventually was changed as DreamWorks demanded Shiro remain on the team, albeit demoted to a mentor position rather than that of the “leader” character. 
+
+But it’s difficult not to see the extent to which Shiro’s suffers—either by alien abduction, forced amputation, or being experimented on—as somehow analogous to the marginalized role he’s meant to fill. Long-time fans of the mecha genre can tell you war can be especially cruel in these shows. It seems as if Adam’s death in Voltron and Shiro’s trauma necessitate hitting all the right narrative beats in the name of tradition.
+
+In season seven, Shiro becomes captain the mech ship, Atlas, a reference to Robotech’s commander Global. In Greek mythology, Atlas is a Titan responsible for carrying the world on his shoulders as punishment for his part in the war against the Olympian pantheon. The rough etymology for “Atlas” in Greek is “to endure” or “hold up,” which is an appropriate symbolic gesture towards Shiro’s traumatic story arcs. Having been a prisoner of war and tortured by the Galra race, Shiro still upholds his role as the Black Paladin of Voltron and the captain of Atlas, truly embodying the masculine archetype he’s meant to resemble. All this, too, is part of his identity as a gay character in a genre known for its heteronormativity and idealization of uniformity.
+
+# Cyborg Trauma
+
+Voltron refuses to erase trauma from Shiro’s character—despite being slotted in the masculine, leader archetype, he has many quiet moments of vulnerability. In season one, Shiro has flashbacks from his time being imprisoned by the Galra while he rescues inmates from a hideout. In another episode, he’s shown on the verge of a mental breakdown after the team captures the Galra commander who tortured him. Several seasons later, he’s also the victim of mind control by the Galra and undergoes an intense identity crisis as he tries to discover who he really is. Shiro goes through some of the most dramatic hardships in the series. But despite initially being planned to be killed off, Shiro has instead become a shining example of Voltron’s re-envisioning of mecha genre tropes.
+
+This is all to say that Shiro, being a gay man in a kids’ show, is unlike most heroes in Western cartoons and Japanese robot anime. His queer potential is analogous to whatever boundaries can be broken within the mecha genre, including science-fiction more broadly. Shiro’s design, too is notably “othered” from the other paladins—he’s an amputee who uses Galran prosthetics, and later, Altean technology in place of a right arm. In addition, he suffers from a mysterious illness that causes his muscles to degrade, thus placing him on a biological clock in terms of military service. 
+
+Thus, Shiro is differentiated from typical hetero, science-fiction leader archetypes not only in sexuality but also in body. But these differences aren’t depicted as personal faults or failings—Shiro’s character isn’t shaped by identity politics, but by the violent nature of the mecha genre. It’s no coincidence classics like Neon Genesis Evangelion are arriving to Netflix just in time for Voltron’s conclusion—demand for these complex, vulnerable narratives in traditionally stoic, straight, male-dominated science-fiction is only increasing.
+
+![](https://i0.wp.com/vrvblog.co/wp-content/uploads/2018/12/image2-1-1024x646.jpg?resize=1024%2C646&#038;ssl=1)
+
+In her “[Cyborg Manifesto](http://faculty.georgetown.edu/irvinem/theory/Haraway-CyborgManifesto.html),” scholar Donna Haraway writes: “cyborg imagery can suggest a way out of the maze of dualism in which we have explained our bodies and our tools to ourselves.” Haraway’s cyborg implies a new way of experiencing our bodies in relation to technology. The imaginary cyborg that does not require an explicit explanation of the human body fits the image of Shiro’s otherness in Voltron. The inner working of the cyborg is arbitrary—it accounts for the human body in its paradoxical existence as a fantastical science-fiction trope and as potential tangible reality. Shiro’s cyborg qualities are integral to his character as a whole, but they also specifically speak to his potential as a queer character and relationship to Voltron’s rigid world-building. He isn’t “the”gay representation of Voltron, but rather, one possibility in a universe full of diverse bodies and cultures. Shiro contains multitudes.
+
+Depicting a queer narrative in the science-fiction genre requires “both building and destroying machines, identities, categories, relationships, space stories,” as Haraway would put it. Shiro doesn’t need to be the ideal gay male representation in order to function in the world Voltron establishes—his sexuality and gender are several degrees separated from his narrative contributions. Whether or not other writers would have approached this differently is to be debatable. However, Shiro provides a strong case for the inclusion of more queer men in science-fiction, particularly in speculative genres in animation. He’s capable, brave, cares deeply for others, and an example of healthy masculinity that flourishes despite trauma. Let’s dump our expectations for gay exceptionalism in space stories. We—and the stories we tell—be better off without it.

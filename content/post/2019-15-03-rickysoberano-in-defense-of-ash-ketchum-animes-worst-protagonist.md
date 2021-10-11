@@ -1,0 +1,36 @@
+
+---
+title: "In Defense Of Ash Ketchum, Anime's Worst Protagonist"
+author: "rickysoberano"
+date: "2019-15-03"
+categories:
+- Editorial
+---
+
+He&#8217;s not so bad!
+
+Protagonists in long-running adventure anime series are expected to follow a certain pattern of growth. It&#8217;s usually one of the reasons that we keep watching. Don&#8217;t get me wrong, when Goku was only about as tall as Bulma&#8217;s kneecaps and his main battle technique was poking his enemies in the eyes, Three Stooges style, he was still fun. But a major draw of *[Dragon Ball](https://vrv.co/series/GR19V7816/Dragon-Ball-Super)* is seeing him train his way to becoming a six-foot slab of tricep muscle that could blow up a planet by sneezing near it. There&#8217;s something energizing and relatable about watching someone constantly strive to improve themselves, even if they&#8217;re improving themselves to eventually tear apart space demons with their bare hands, and you&#8217;re improving your skills so that one day you&#8217;ll be able to make dinner without committing second degree arson in your kitchen.  
+![](/wp-content/uploads/2019/03/641e7b143b046a158c03c75c9946d5521552325595_full.jpg?w=1170&#038;ssl=1)
+That said, there are a few protagonists that just seem to spin their wheels no matter how hard they push themselves. They&#8217;ve spent a thousand episodes wanting to be the very best, like no one ever was, and often, it feels like they&#8217;re even less close to that goal than when they started out. Of course, thanks to that clumsy reference I just made and the title of this piece, you know I&#8217;m talking about Ash Ketchum, the star of the [*Pokémon *anime](https://www.viz.com/pokemon)*. *
+
+I don&#8217;t need to explain what *Pokémon *is, because, at this point, if you don&#8217;t know, you&#8217;ve made a concentrated effort NOT to know. Or you&#8217;re my Dad. Either one. But I will give you a brief refersher course on Ash Ketchum: He&#8217;s a perennial kid from Pallet Town that goes from region to region collecting Pokémon and beating gym leaders in order to eventually become a Pokémon master. This journey has been going on since the late nineties, so logically, Ash should be sweeping through these towns and forests like the hand of a merciless god, driving enemies and fellow trainers into the ground and moving on to conquer whatever else is left. 
+
+At this point, Ash should be kind of like how you find Red in the end of *Pokémon Gold/Silver/Crystal: S*itting atop a mountain, bored and waiting for his next challenger, or just waiting to die, whichever comes first. But he&#8217;s not. Instead, Ash remains a clumsy, forgetful child, often needing reminders on the basic rules of the *Pokémon *universe. Whether it&#8217;s type differences or battle strategies, they&#8217;ve all leaked from Ash&#8217;s skull by the time he enters his next region. If you talk to anyone about the [*Pokémon *anime](https://www.viz.com/pokemon), it&#8217;s probably their first and primary complaint. Why hasn&#8217;t Ash grown up? Heck, more importantly, why hasn&#8217;t he improved *at all? *
+![](/wp-content/uploads/2019/03/29df0347f8becb345c6128a9649644021552325414_full.jpg?w=1170&#038;ssl=1)
+There are many obvious reasons as to why Ash hasn&#8217;t grown into a jaded *Pokémon *warlord. First of all, the *Pokémon *anime is predominately for children, and while I won&#8217;t make the dumb argument that children only want to see main characters that are other children, having Ash Ketchum be an all-powerful *Pokémon *genius that strolls through Kanto like Dr. Manhattan in *Watchmen* is kind of unappealing. Also, Ash Ketchum would look weird with facial hair. I&#8217;m just gonna come out and say that. I don&#8217;t want to see Ash Ketchum with a goatee and neither do the youth of the world.
+
+Secondly, this show&#8217;s been going on for twenty years, and it&#8217;s fairly fond of adding and subtracting new main cast members and lightly rebooting itself from time to time. *Pokémon *is never going to be *[One Piece](https://vrv.co/series/GRMG8ZQZR/One-Piece)* or *[Naruto](https://vrv.co/series/GY9PJ5KWR/Naruto)*, where rather than making it super easy for newcomers, it just lays down nearly one-hundred volumes of manga at your feet and says &#8220;Study up, nerd.&#8221; *Pokémon *is desperate to remain fresh, and it does so by hitting the New Game button every few years. 
+
+But the reason that many don&#8217;t think about when they&#8217;re griping about Ash and his lack of progress is that, unlike *[Dragon Ball](https://vrv.co/series/GR19V7816/Dragon-Ball-Super)* or *[One Piece](https://vrv.co/series/GRMG8ZQZR/One-Piece)* or *[Naruto](https://vrv.co/series/GY9PJ5KWR/Naruto)*, *Pokémon *has actually allowed you into its universe as a main character. All of the aforementioned franchises that I listed have video game spinoffs, but *Pokémon *is the only one that&#8217;s based entirely on a video game. The source material for the *Pokémon *anime is the *Pokémon *game series, a game series that you star in as the person that will become the ultimate *Pokémon *champion. And because of this, Ash Ketchum ***is an adaptation of you.***
+
+I know. It&#8217;s very dramatic.
+![](/wp-content/uploads/2019/03/2b763b08bc42c8eac48193409e59338f1552325653_full.png?w=1170&#038;ssl=1)
+When I get frustrated with Ash Ketchum because he doesn&#8217;t remember what a Rock type is weak against, or he forgets all of Charizard&#8217;s best attacks, I&#8217;m getting frustrated because he&#8217;s getting ME wrong. I played through the games! I fought the same gym leaders and explored the same areas that Ash did! And I did okay at it! I beat the Elite 4! I completed the Pokedex! And to see Ash constantly struggle is a personal version of when you go see a movie and it&#8217;s totally changed a major portion of the book that it&#8217;s based on. &#8220;But no! This isn&#8217;t how it&#8217;s supposed to go!&#8221;
+
+Combine this with *Pokémon&#8217;s *penchant for restarting itself with every region in order to appeal to the next generation of fans and it becomes clear that **you were never meant to grow up with Ash** like you were with Luffy and Goku and the rest. Instead, Ash is there to mirror you at a very specific time of your life, when you&#8217;ve just popped in your first *Pokémon *game and don&#8217;t know what&#8217;s going on. 
+
+And for that purpose, Ash Ketchum is a GREAT protagonist. He&#8217;s excited, fairly intelligent, good to his friends and his magic pets, and always willing to go outside of his comfort zone. He&#8217;s everything that you should be when you&#8217;re playing your game. And then, by the time the next game comes out and you&#8217;re already a *Pokémon *master, you have to say goodbye to him, at least as an aspirational figure. Because you&#8217;re already the very best, like no one ever was. And the next generation of *Pokémon *fans needs Ash Ketchum more than you do. 
+![](/wp-content/uploads/2019/03/934bbf219bd98b1899f96ccf6c7302cd1552325753_full.png?w=1170&#038;ssl=1)
+*Daniel Dockery is a writer/editor for Crunchyroll. [Be his Poke Pal on Twitter. ](https://twitter.com/dandock)*
+
+This article was originally published on [Crunchyroll](https://www.crunchyroll.com/anime-feature/2019/03/11/in-defense-of-ash-ketchum-animes-worst-protagonist).

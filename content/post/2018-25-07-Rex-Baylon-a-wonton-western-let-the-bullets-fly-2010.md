@@ -1,0 +1,32 @@
+
+---
+title: "A Wonton Western: Let the Bullets Fly (2010)"
+author: "Rex Baylon"
+date: "2018-25-07"
+categories:
+- Editorial
+---
+
+Beginning his career as an actor for Fifth Generation luminaries Zhang Yimou and Xie Fei, Jiang Wen’s move to the director’s chair would happen in 1994 with *In the Heat of the Sun*, a nostalgic tale about a group of adolescent males set during the Cultural Revolution. His subsequent directorial projects continued to mine China’s recent past, films full of pathos and irony, that were willing to not merely propagate state sponsored propaganda but attacking preconceived prejudices. And as a testament to Jiang’s skills behind the camera, critics and audiences alike have rightly lauded each film for their visual inventiveness and narrative sensibilities.
+
+![](https://i1.wp.com/vrvblog.co/wp-content/uploads/2018/07/Let-the-Bulets-Fly-2-1024x576.jpg?resize=1024%2C576&#038;ssl=1)
+
+[*Let the Bullets Fly *(2010)](https://vrv.co/watch/GYVD9N9WY/Let-the-Bullets-Fly), Jiang’s fourth directorial effort, is a fun and well-executed action adventure flick. Written, directed, and starring Jiang as the bandit “Pocky” Zhang, the plot is reminiscent of *Robin Hood *as Zhang and his band of Merry Men do battle with a corrupt tyrannical mob boss, Master Huang, played with comedic relish by Chow Yun Fat. The setting, a podunk town in the south of China called Goose Town could have come right out of a Zhang Yimou or Chen Kaige neorealist epic from the 1980s.  Jiang choses instead to set the story during the Warlord Era, a tumultuous time in China’s history before the Japanese invasion when huge swathes of the country were cut up and divided amongst a handful of military warlords.
+
+The film wastes no time in establishing its filmic *bon mots*, the Western genre by way of Sergio Leone and the *jidai-geki *through the work of Akira Kurosawa. A team of horses gallops across the screen, but instead of a horse carriage trailing right behind we get an iron horse, the symbol of the death of the West, carrying a platoon of soldiers guarding Goose Town’s new provincial governor, Ma Bangde, played by Ge You, his wife (Carina Lau), and his adviser. In an impressive show of choreography and special effect, Zhang and his men derail the train and kill everyone except Ma and his wife, but unlucky for Zhang the money he is anxious to collect is nonexistent. Leading Zhang to bully Ma to act as his adviser as he plays Goose Town’s new governor, and which quickly pits Zhang against Master Huang for control of the town.
+
+![](https://i1.wp.com/vrvblog.co/wp-content/uploads/2018/07/Let-the-Bullets-Fly-3.jpg?resize=584%2C389&#038;ssl=1)
+
+Similar to a Leone Western or a Kurosawa picture, specifically his answer to the gritty *chambara *genre, *Yojimbo *(1961), *Let the Bullets Fly *does not shy away from violence. Instead, it plays with the concept of violence. People don’t get shot or stab and just drop dead. They bleed, scream, weep, and the sounds of bones crushing and flesh tearing are practically on a loop throughout the narrative runtime. All the while commenting, albeit in a less original way, about the absurdity and randomness of violence within a corrupt environment. Like one of the *Dollars *pictures or a Toshiro Mifune samurai picture, Zhang is the archetypal anti-hero, out to make a quick buck and apathetic to the plight of Goose Town’s inhabitants until he has a reason, revenge, to get involved. And while classic Westerns and samurai pictures colored their characters be they villain, hero, and everything in-between in one of two tones, white hat or black hat, Zhang opts for a more nuanced approach.
+
+In terms of the visual, Jiang and the film’s cinematographer, Zhao Fei, rebel against the neorealist aesthetic of the Fifth Generation filmmakers and the amateurish/Direct Cinema ethos of auteurs like Jia Zhangke. Instead, *Let the Bullets Fly *plays with the conventions of the art itself. The editing is fast paced, the shot compositions are bright and garish, and the camera speeds its way from one frame to the next, never lingering long enough to question the chaos at play. Yet, with all the stylistic flourishes on display mistaking it as style substituting for a lack of substance would be a grave error.
+
+![](https://i2.wp.com/vrvblog.co/wp-content/uploads/2018/07/Let-the-Bullets-Fly-4-1024x386.jpg?resize=1024%2C386&#038;ssl=1)
+
+One of the great pleasures of watching Jiang’s picture is the acting, and in a film with three of the most critically lauded actors of the Chinese screen playing integral roles you never, for a moment, get bored as they spout the rich dialogue or commit to their unique performances. Ge You vacillates in his portrayal of Ma, transitioning from sniveling coward, huckster, and ne’er-do-well all in one scene, but though he is a weasel, some would say a metaphor for China’s bourgeoisie, he elicits more sympathy from the audience because he is a caricature of a capitalist. He bumbles his way to a governorship, the butt of most jokes, and he is the constant target of abuse from Master Huang and “Pocky” Zhang.
+
+Chow Yun Fat has double duty playing Master Huang and Huang’s double. The former is arch, while his performance as the double is pure vaudevillian. Chow manages to telegraph so much about Huang’s state of mind merely by the way he contorts his face and mouth. And though he plays the antagonist in the film, audiences are just as likely to laugh at him, as they would hate him. As for Jiang’s portrayal of Zhang, he comes right out of the Mifune/Eastwood mold. His stride, posture, and dialogue mark him as the anti-hero sent by divine providence to clean Goose Town of corruption.
+
+![](https://i1.wp.com/vrvblog.co/wp-content/uploads/2018/07/Let-the-Bullets-Fly-5.jpg?resize=758%2C426&#038;ssl=1)
+
+*Let the Bullets Fly *broke countless box office records during its initial release and was critically appreciated. It has been labeled as “unabashedly entertaining” and “captivating” by critics. Plus the film has garnered multiple nominations and awards. Though writing, directing, and acting are nothing new for Jiang, working in a more mainstream genre, less cerebral than his earlier pictures, is. The fact that the screenplay went through more than 30 separate drafts before Jiang was happy with the script proves that he was working in unfamiliar territory. Yet, by some miracle of the cinema gods he not only makes a satisfying actioner he also succeeds in inventing a sub-genre that will most certainly be copied over and over again.

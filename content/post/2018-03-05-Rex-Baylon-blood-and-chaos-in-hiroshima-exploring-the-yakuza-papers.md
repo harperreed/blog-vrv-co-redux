@@ -1,0 +1,34 @@
+
+---
+title: "Blood and Chaos in Hiroshima: Exploring the Yakuza Papers"
+author: "Rex Baylon"
+date: "2018-03-05"
+categories:
+- Recommendations
+---
+
+Kinji Fukasaku’s acclaimed five part gangster series, known in the West as *The Yakuza Papers *and in Japan as *Battles Without Honor and Humanity*, is a brutal cinema-verite style gangster saga. Beginning in the rubble of postwar Japan and ending during a tumultuous time in the country’s history when student protesters acted more like modern day terrorists and capitalist desires made unscrupulous men disgustingly wealthy. *The Yakuza Papers *frames this chaotic era as a conflict between various groups of thugs, cowards, and rapists fighting at first for scraps of territory, and by the end congealing into a corporate body of garishly dressed businessmen whose veneer of respectability belies their gluttonous hunger for power and wealth.
+
+![](https://i1.wp.com/vrvblog.co/wp-content/uploads/2018/04/Battles-Without-Honor-and-Humanity-title-card-1024x465.png?resize=1024%2C465&#038;ssl=1)
+
+In the first installment, eponymously titled *[Battles Without Honor and Humanity](https://vrv.co/watch/G6W4GEGKR/The-Yakuza-Papers-Battles-Without-Honor-and-Humanity?utm_source=editorial_vrv&amp;utm_medium=blog_vrv&amp;utm_campaign=blood-and-chaos-in-hiroshima-exploring-the-yakuza-papers)*(1970), we are dropped into a ghetto in Hiroshima. The city plays a prominent role in the series. Fukasaku even inserts shots of the atomic mushroom cloud that enveloped the city at the end of the war underlaid behind the film’s title card. Stark sepia-toned images of the Hiroshima Peace Memorial (Genbaku Dome) are also peppered throughout the five films in the series. At times this becomes a sharp jab to the gut for audiences, reminding us what the source of all the violence and death in the film is.
+
+![](https://i1.wp.com/vrvblog.co/wp-content/uploads/2018/04/Battles-Without-Honor-and-Humanity-screengrab-1024x437.png?resize=1024%2C437&#038;ssl=1)
+
+Our “hero” in the picture, Shozo Hirono—played with cocky swagger by Bunta Sugawara—is an army vet, a relic of a now shameful past. But while he might not have much, he is driven by a sense of loyalty and a personal code of ethics. And, unlike Michael Corleone or Henry Hill in their respective gangster epics, Shozo has few triumphal moments in the five films of the pentalogy. He starts out as a pariah, becomes associated with the Yamamori family in an attempt to save his friend, and quickly becomes disillusioned by the yakuza way of life.
+
+By the second film, *[Deadly Fight in Hiroshima](https://vrv.co/watch/GR5P2VQ3R/The-Yakuza-Papers-2-Deadly-Fight-in-Hiroshima?utm_source=editorial_vrv&amp;utm_medium=blog_vrv&amp;utm_campaign=blood-and-chaos-in-hiroshima-exploring-the-yakuza-papers)*(1973), the story focuses on another down and out loner, this time gambler and hitman Shoji Yamanaka played by Kinya Kitaoji. The story, a blend of tragic romance and gritty crime drama, revolves around a very common trope in yakuza films. The conflict is between *giri*, his duty to the Muraoka crime family, and *ninjo*, his humanity, represented by his love for Yasuko, a waitress and niece to the head of the Muraoka family. From start to finish, Shoji is put through the ringer. He gets beat up, goes to jail, risks his life countless times to kill his boss&#8217;s enemies, and in the end has nothing to show for it. Like many Fukasaku protagonists, the tragedy is not that the character’s fall came due to duplicity or their own inherent greed, but because the system has always used people like Shoji as fodder to prop up a few powerful men.
+
+Fukasaku, no stranger to hardship, was drafted into the Japanese army during the war in the Pacific at fifteen and spent his time during the conflict running for cover and witnessing his friends being burnt to cinders from American bombers. What made it even worse was that the survivors were forced to bury the dead, their own friends, after each attack. These experiences colored his perspective on many issues, a majority of his films being attacks on authority figures and critical of Japan’s warmongering. Aside from his final masterpiece, *[Battle Royale](https://vrv.co/watch/GY75NZJK6/Battle-Royale?utm_source=editorial_vrv&amp;utm_medium=blog_vrv&amp;utm_campaign=blood-and-chaos-in-hiroshima-exploring-the-yakuza-papers)*(2000), a biting satire about Japanese youth violence, his main contribution to cinema has been the *jitsuroku-eiga*, the realistic crime drama. A superlative example of which is *The Yakuza Papers*.
+
+![](https://i0.wp.com/vrvblog.co/wp-content/uploads/2018/04/Battles-Without-Honor-and-Humanity-Police-Tactics-screengrab-1024x439.png?resize=1024%2C439&#038;ssl=1)
+
+The political and social criticism continues with the next two entries, *Proxy War *released in 1973 and *Polic*e *Tactics *released in early 1974. These two features, which tell one long story broken into two sections, involves a power struggle within the Hiroshima yakuza families. The devastation the conflict causes as street gangs are used as pawns to fight and die in a war that will only benefit the *Oyabuns*, gang bosses at the top of the food chain. Like the Western powers and the Soviet Union during the Cold War, the *Oyabuns *do not engage in actual combat with one another. Instead they pit groups of disenfranchised young men against one another.
+
+Sadaji Yoshida, the cinematographer for all five pictures, is integral to the series’ success. Shaky cam lends immediacy to the action, Dutch angles punctuate gruesome death scenes, and the choice to utilize art cinema tropes like freeze frames really makes *The Yakuza Papers *a very modern film. While Toshiaki Tsushima’s *Battle Without Honor or Humanity *contributes a frenetic jazz score that matches the staccato rhythm of the picture.
+
+![](https://i2.wp.com/vrvblog.co/wp-content/uploads/2018/04/Battles-Without-Honor-and-Humanity-Final-Episode-screengrab-1024x438.png?resize=1024%2C438&#038;ssl=1)
+
+The final picture of the series, *Final Episode *(1974), echoes the dilemma that Michael Corleone faced in the first two *Godfather *films. Gangster-turned-politician Akira, played by baby-faced Akira Kobayashi, has turned legit and struggles to maintain control of the Tensei Coalition, a political party comprised of yakuza. Akira, though “law-abiding”, has a cruel streak in him and violent *coup d’états *and backstabbing are par for the course as Akira forces the disparate threads of the yakuza hierarchy to relinquish their control. By the end of the picture, though peace is maintained it is a pyrrhic victory and we are left with one question, “Will the bitter battles that arise from the strong preying upon the weak ever be banished from this earth?” The answer, sadly, is not hopeful.
+
+ 

@@ -1,0 +1,38 @@
+
+---
+title: "The Filler Arc That Turned The Pokémon Anime From Good To Great"
+author: "rickysoberano"
+date: "2019-18-04"
+categories:
+- Editorial
+---
+
+### Magikarps and shipwrecks and giants, oh my!
+
+When you think about filler arcs, you very rarely think of [the *Pokémon* anime](https://www.pokemon.com/us/pokemon-episodes/). As an adaptation of the game series, long-term fans have simply come to accept the fact that, in between the gym badges and the big legendary Pokémon encounters, you&#8217;re gonna get a ton of episodes where Ash Ketchum has to help a Blastoise owner save his pineapple farm, or whatever. It feels less like filler and more like the natural order of things. That said, it still is filler, but as I&#8217;m about to show you, sometimes filler can be very, very good. 
+
+The first few episodes of *Pokémon* are mostly about establishing things. Ash catches what is to become his main team, he visits some important locations and amasses his two partners, Brock and Misty, that will join him on his journey and tell him how much of a fool he&#8217;s being. That said, very few episodes connect in the sense that if you miss one, you won&#8217;t really understand what&#8217;s going on in the next one. If you [skip the Squirtle Squad episode](https://www.pokemon.com/us/pokemon-episodes/01_12-here-comes-the-squirtle-squad/) (Please don&#8217;t), and you see Squirtle show up later, you won&#8217;t be like &#8220;A TURTLE? WHY? WHERE? WHO?&#8221; You&#8217;ll pretty quickly figure out what his deal is. I mean, he says his name constantly. I feel like that might be why Pokémon say their name in the first place, as a reminder to the kids watching &#8220;Hey, there are about 900 of these laser pets, so the least we can do is tell you what to call them.&#8221;
+![charmanders](https://i2.wp.com/img1.ak.crunchyroll.com/i/spire1/7fe25cf6ef8e1614b1a2d232a894dfdd1555519801_full.jpg?w=1170&#038;ssl=1)
+But that lack of connection changes in episode 15 &#8220;[Battle Aboard The S.S. Anne.](https://www.pokemon.com/us/pokemon-episodes/01_15-battle-aboard-the-st-anne/)&#8221; Now, you may be saying &#8220;Daniel, the S.S. Anne is a location in the games! I&#8217;ve been there,&#8221; but what happens in the anime is a little more dramatic than what you do on the boat in *Red*/*Blue (*Fight a few trainers, rub a vomiting man on the back, and watch the ship leave.) Instead here, Ash and Co. get on the ship and Ash immediately trades his Butterfree with a southern Gentleman&#8217;s Raticate. This is a baffling move because Ash&#8217;s Butterfree just beat the crap out of said Raticate, but oh well. Ash is just a kid. I get it. When I was a kid, I ate leaves because I saw a horse do it.
+![team rocket](https://i2.wp.com/img1.ak.crunchyroll.com/i/spire3/d6368b25e570caaf48d88e8a83283cdd1555519998_full.jpg?w=1170&#038;ssl=1)
+Then everything goes awry. The ship&#8217;s employees reveal themselves to be Team Rocket members, Ash retrieves his Butterfree in the chaos, and instead of Ash leaving the ship and being like &#8220;Let&#8217;s go get my fourth badge, guys!&#8221; *the ship starts to sink. *That sure as hell isn&#8217;t in the games. The crew gets trapped with Team Rocket&#8217;s Least Valuable Players Jesse and James and have to join forces with them to find their way out of a cruiser that&#8217;s now upside down at the bottom of the ocean. This is kind of cool because while Team Rocket has spent most of this series so far showing up at the end, demanding Pikachu, and then getting embarrassed, you now get to see them as real characters. Sure, they&#8217;re inept at almost everything, but they&#8217;re not the *absolute* worst. 
+
+It also provides human stakes in a story that&#8217;s mostly about Pokémon stakes. In most episodes, you only have to worry about Charmander getting knocked out or something. But in this, you have to worry about Ash (and everyone and everything Ash loves) *drowning*. This second episode in the arc, &#8220;[Pokémon Shipwreck](https://www.pokemon.com/us/pokemon-episodes/01_16-pokemon-shipwreck/)&#8221; also builds up the mystery of Magikarp. Bought on an impulse by James in the last episode, it&#8217;s completely useless, and they constanly berate the poor thing. Meanwhile, those that have played the games are waiting eagerly, knowing that, at level 20, after you&#8217;ve put it at the front of your party and then switched it out so that it can gain some experience but not get clobbered, Magikarp becomes Gyarados, and Gyarados did not come to play.
+![gyarados](https://i0.wp.com/img1.ak.crunchyroll.com/i/spire4/71f2d219a037bc6b8107060a6e60849f1555520276_full.jpg?w=1170&#038;ssl=1)
+After Gyarados (and his Gyarados posse) destroy the raft that everyone was on, the heroes wash up on the Island of Giant Pokémon, [which just so happens to be the name of the next episode](https://www.pokemon.com/us/pokemon-episodes/01_17-island-of-the-giant-pokemon/). And it&#8217;s here that *Pokémon* goes from a show that&#8217;s pretty good to a show that no child should ever miss. Ash&#8217;s Pokémon and Team Rocket&#8217;s Pokémon all get the chance to talk to one another, leading to this neat, revealing exchange: 
+![ekans](https://i0.wp.com/img1.ak.crunchyroll.com/i/spire3/57bb67c76692e6064a7d02d9e50863e41555520374_full.jpg?w=1170&#038;ssl=1)![ekans](https://i1.wp.com/img1.ak.crunchyroll.com/i/spire1/447d924204a327fe3fdbc9a5b13b53701555520409_full.jpg?w=1170&#038;ssl=1)
+ It also allows us to see the true personalities of Ash&#8217;s Pokémon, which include **Pragmatic Bro Bulbasaur**&#8230;
+![bulbasaur](https://i0.wp.com/img1.ak.crunchyroll.com/i/spire1/5ba831bf7819b81d5bc7f048836d40741555520457_full.jpg?w=1170&#038;ssl=1)
+&#8230;**Edgelord Squirtle**&#8230;
+![squirtle](https://i2.wp.com/img1.ak.crunchyroll.com/i/spire2/18a4401c01c4267b937264ed875c74b11555520515_full.jpg?w=1170&#038;ssl=1)
+&#8230;and **Don&#8217;t Let Him Have Whiskey Because He&#8217;ll Cry About His Ex Charmander**.
+![charmander](https://i1.wp.com/img1.ak.crunchyroll.com/i/spire4/a0a36964dbb0e650f47bc48b277147dc1555520562_full.jpg?w=1170&#038;ssl=1)
+They&#8217;re all great and perfect and pure and I love them, is what I&#8217;m saying. Plus, this episode finally shows us where that group of enormous Pokémon from the intro theme came from. Of course, at the end, it&#8217;s all revealed that these giant Pokémon are robots invented for some kind of theme park by Team Rocket&#8217;s Giovanni, so we got the defeat of a Team Rocket scheme without even knowing it. 
+
+This filler arc is great because it takes a portion from the games that was always a bit underwhelming and spins it off into its own fun thing. It fleshes out the supporting cast, humans and monsters alike, and by the end, you appreciate everyone more. Plus, the show takes a break from being mostly about having Ash&#8217;s Pokémon eviscerate someone else&#8217;s and turns it into an adventure show that just so happens to have Pokémon battles in the background. 
+![Ash](https://i0.wp.com/img1.ak.crunchyroll.com/i/spire4/1d8c6494ac6927845ab40fa35bf689531555520671_full.jpg?w=1170&#038;ssl=1)
+And it&#8217;s only three episodes long! And [you can watch it on Pokémon TV, FOR FREE, right now](https://www.pokemon.com/us/pokemon-episodes/01_15-battle-aboard-the-st-anne/)! So get to it, trainers. Quit playing as Joker on *Super Smash Bros. Ultimate* for a bit and take a nostalgia cruise with Ash and the gang. 
+
+*Daniel Dockery is a writer for Crunchyroll. You can [be his Pika Pal on Twitter!](https://twitter.com/dandock)*
+
+This article was originally published on [Crunchyroll](https://www.crunchyroll.com/anime-feature/2019/04/18-1/the-filler-arc-that-turned-the-pokmon-anime-from-good-to-great).
